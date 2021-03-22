@@ -1,1 +1,1 @@
-# tepadam1
+# Guru devulu Ghatti gariki namaskaramulato
